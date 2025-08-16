@@ -6,7 +6,7 @@
 
 <!-- hi, hyperlink maybe?? i dont know -->
 
-sign atabook here, you can give me suggestion about fandom recommendation [click me here](https://xiaoozhengzhou.atabook.org/)
+sign atabook here, you can give me suggestion about fandom recommendation [click me here](https://xiaozhengzhou.atabook.org/)
 
 <!--spotify-->
 
