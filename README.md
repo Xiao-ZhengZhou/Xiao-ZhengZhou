@@ -1,25 +1,12 @@
-<img width="736" height="397" alt="Untitled99_20250803220054" src="https://github.com/user-attachments/assets/95c22840-b736-4c68-8b01-c05d4a9fbab6" />
+![458d50a2f691cc2c5eea7d13e6871da7](https://github.com/user-attachments/assets/907ba8d7-18b0-4f6d-a071-ef525fe2b668)
 
-<!-- message1 -->
+<!-- wemmbu blinkie -->
 
 ![blinkiesCafe-ZF](https://github.com/user-attachments/assets/454f1630-9164-4c9f-8fe5-da49c723a576)
-⠀
-⠀
-<!-- message2 -->
 
-🌻⠀⠀⠀⠀⠀.⠀⠀⠀⠀⠀⠀≣⠀⠀⠀⠀⠀⠀★⠀⠀⠀⠀⠀执子之手，与子偕老⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<!-- hi, hyperlink maybe?? i dont know -->
 
-**about :**
-
-> ᵐᵘˡᵗᶦᶠᵃⁿᵈᵒᵐ .
-
-> ᶜ ⁺ ʰ ᵃʳᵉ ᵃˡˡᵒʷᵉᵈ, ᶦ ᵃᵈᵒʳᵉ ᵗʰᵉᵐ ᵇᵉᶜᵃᵘˢᵉ ᶦᵗ ʲᵘˢᵗ ᶜᵒᵐᶠᵒʳᵗ ᵐᵉ ᵘᵖ .
-
-> ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ᶦⁿᵗᵉʳᵃᶜᵗ!.. ᵘⁿˡᵉˢˢ ᶦᵐ ᵒᶠᶠᵗᵃᵇ ᵒʳ ᵇᵘˢʸ ᵇᵉᶜᵃᵘˢᵉ ᶦ ʷᵒⁿᵗ ʳᵉˢᵖᵒⁿᵈ .
-
-<!-- atabook -->
-
-(⁠✿⁠^⁠‿⁠^⁠) ⠀.⠀⠀[atabook!](https://xiaoozhengzhou.atabook.org/)
+sign atabook here, you can give me suggestion about fandom recommendation [click me here](https://xiaoozhengzhou.atabook.org/)
 
 <!--spotify-->
 
