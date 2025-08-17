@@ -1,8 +1,17 @@
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/6cd7c4c4-e8d6-44d0-a2f3-f6e4fbc0767c" />
+[<img width="2560" height="1398" alt="image" src="https://github.com/user-attachments/assets/447dea07-a41f-4467-ae77-bdc59c7b3d7c" />](https://www.youtube.com/watch?v=c-2OC6CQgTE&list=RDc-2OC6CQgTE&start_radio=1)
 
 <!-- hi, hyperlink maybe?? i dont know -->
 
-[sign atabook](https://xiaozhengzhou.atabook.org/) to feed this hungry creature a sour cream 😢😢😢
+___
+
+## THE LIBRARY WILL ENDURE ILLUMINATED, SOLITARY, INFINITE, PERFECTLY MOTIONLESS, EQUIPPED WITH PRECIOUS VOLUMES, USELESS, INCORRUPTIBLE, SECRET.
+
+
+Page of the Day
+
+<!-- hio -->
+
+> [Lowell's Page.](https://directorlowell.atabook.org/)
 
 <!--spotify-->
 
